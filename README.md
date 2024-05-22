@@ -5,8 +5,4 @@
 - 📫 Como chegar até mim(nem tente)
 - 😄 Pronomes: Rock and Roll
 - ⚡ Fato engraçado .. .-.. .-.. / -- .- -.- . / -.-- --- ..- / ... .- -.-- / .... --- .-- / .--. .-. --- ..- -.. / -.-- --- ..- / .- .-. . / --- ..-. / -- . / ... --- / ... - .- -.-- / .- .-- .- -.- . / .--- ..- ... - / .-.. --- -. --. / . -. --- ..- --. .... / - --- / ... . / -- -.-- / .-- .- -.--
-
-<!---
-EduardoBarbara12/EduardoBarbara12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![](https://static.wikia.nocookie.net/fridaynightfunking/images/3/33/Yuri-close-idle.gif/revision/latest/scale-to-width-down/1000?cb=20220705050449)
